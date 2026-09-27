@@ -12,7 +12,7 @@
 
 ## Demo Video
 
-🎥 [Watch Demo Video](YOUTUBE-LINK-HERE)
+[Watch Demo Video](https://youtube.com/shorts/4CP3FWAmVkg?feature=share)
 
 ---
 
